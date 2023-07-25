@@ -1,4 +1,4 @@
-### sejam bem vindos ao meu perfiu 🫀
+### sejam bem vindos ao meu perfil 🫀
 
 meu nome é felipe
 
